@@ -1,0 +1,1 @@
+## uğurun ilk blog postu
